@@ -1,0 +1,1 @@
+Artículo 3º.- Alcance: La presente comprende a las obras de ampliación de red de cloacas a ejecutar en sectores con factibilidad de conexión a la red primaria, y que representen obras de pequeña envergadura.
