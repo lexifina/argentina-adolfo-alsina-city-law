@@ -1,0 +1,10 @@
+Ordenanza Nº4809/23
+Ordenanza Nº 4809/23
+Adolfo Alsina, 23/03/2023
+VISTO: La Ordenanza N° 4432/2019 que prohíbe el uso de pirotecnia en todo el territorio del Partido de Adolfo Alsina. Y;
+CONSIDERANDO: Que la Cámara Argentina de Empresas de Fuegos Artificiales (CAEFA), Asociación Civil inscripta ante Inspección General de Justicia (IGJ), ha planteado la inconstitucionalidad de la referida ordenanza alegando que prohíbe el uso de productos lícitos y de venta libre y que el Municipio no tiene competencia para sancionar sobre dicho tema, violando de este modo la Ley 20.429 cuya aplicación se encuentra a cargo de la ANMAC.
+Que la mayoría de los Municipios de la Provincia de Buenos Aires que dictaron Ordenanzas similares a la que se peticiona derogar, fueron vencidos judicialmente por dicha Cámara de empresarios, puesto que la Suprema Corte de la Provincia de Buenos Aires declaró la INCONSTITUCIONALIDAD de la Ordenanza que prohibía la pirotecnia en el Partido de Miramar, condenando en costas al Municipio (Causa: I-74078, autos: “Cámara Argentina de Empresas de Fuegos Artificiales c/ Municipalidad de Gral. Alvarado s/ Inconstitucionalidad de la Ordenanza 220/15”).
+Que la referida Sentencia hace lugar al planteo legal efectuado por CAEFA amparado en la Ley 20.429 y su Decreto Reglamentario N° 302/83m que regula venta, uso y fabricación de productos autorizados en el todo el territorio Nacional, y la misma podrá hacerse extensiva a todos los Municipios.
+Que este Honorable Concejo Deliberante, pretende con la presente derogación, evitar graves perjuicios y daños al erario público Municipal de Adolfo Alsina, y así proteger y preservar los Recursos Públicos Municipales, en beneficio de nuestro Distrito, con la plena convicción fundada de que una sentencia de declaración de inconstitucionalidad de la Ordenanza N° 4432/19 contra nuestro Municipio, ocasionaría graves condenas dinerarias contrarias al Fisco Municipal.
+Por todo lo expuesto, los Concejales del bloque Frente de Todos, bloque Juntos, y bloque Juntos Evolución, del Distrito de Adolfo Alsina, presentan el siguiente:
+ORDENANZA
