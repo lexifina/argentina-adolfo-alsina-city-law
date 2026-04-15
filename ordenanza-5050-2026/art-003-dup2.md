@@ -1,0 +1,15 @@
+Artículo 3°.-: La solicitud de exención tributaria deberá ser formulada por escrito por el Contribuyente bajo declaración jurada, acompañada de la siguiente documentación:
+a) Copia del título de dominio o de usufructo del inmueble gravado tributariamente, o copia del Convenio de adjudicación de la vivienda de programas sociales habitacionales gravada tributariamente, o copia del título del automotor, ello según la Tasa por la que solicite eximición.
+b) Copia D.N.I. y Constancia de CUIT/CUIL del solicitante.
+c) Copia D.N.I. del grupo familiar del solicitante.
+d) Certificación negativa del ANSES del solicitante y su grupo familiar.
+e) Documentación que acredite ingresos del grupo familiar.
+f) Certificación de que el grupo familiar no es propietario de más de un inmueble emitida por la Dirección de Catastro Municipal.
+g) Copia de recibo de haberes de jubilado o pensionado, en el caso de corresponder.
+h) Copia de Certificado Único de Discapacidad emitido por la Junta Evaluadora local, en el caso de corresponder.
+i) Copia de la credencial social vigente emitida por la Secretaría de Desarrollo Social Municipal.
+Los Contribuyentes que sean personas jurídicas deberán adjuntar la documentación enunciada en los incisos a) y b), más el Acta de Distribución de Autoridades y la Certificación de Entidad de Bien Público emitida por la Municipalidad de Adolfo Alsina.
+Los Bomberos Voluntarios deberán adjuntar la documentación de los incisos a) y b), más certificación del Cuartel de Bomberos Voluntarios que integran como miembros de la fuerza en el Partido de Adolfo Alsina.
+Los Contribuyentes Excombatientes de la guerra de las Islas Malvinas deberán adjuntar la documentación enunciada en los incisos a) y b), más constancia de participación en el conflicto bélico.-
+CAPÍTULO SEGUNDO
+EXENCION TASA SERVICIOS URBANOS
