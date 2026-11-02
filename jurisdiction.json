@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-adolfo-alsina",
+  "code": "AR-B-ADOLFO-ALSINA",
+  "name": "Adolfo Alsina",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-adolfo-alsina-city-law",
+  "build": "built: municipal ordinances (206 ordinances, 206 versions) from https://sibom.slyt.gba.gob.ar/cities/1",
+  "language": "es",
+  "sources": 1
+}
